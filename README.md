@@ -1,1 +1,0 @@
-# Mi-asesor-financiero---segundo-parcial
